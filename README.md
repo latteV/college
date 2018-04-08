@@ -1,2 +1,2 @@
 # college
-Just game
+I can speak chinese;
